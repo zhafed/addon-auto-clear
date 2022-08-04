@@ -1,2 +1,2 @@
-# addon-auto-clear
-addon for auto clear custom history
+# addon auto clear history porn
+addon for auto clear history oof porn
